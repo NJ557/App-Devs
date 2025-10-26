@@ -1,7 +1,7 @@
 *Initial D* is a anime series created by Shuichi Shigeno 
 #l Why I Love It
 
-- The **1990s nostalgia*• is amazing.
+- The *1990s nostalgia*• is amazing.
 - The characters, especially "Takumi Fujiwara, are very competitive but humble.
 - The mix of street racing, respect, friendship, and sportmanship is perfect.
   
